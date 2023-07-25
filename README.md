@@ -1,3 +1,3 @@
 # Resume
 
-## Hemag Vyas
+## Hemang Vyas
